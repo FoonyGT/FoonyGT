@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @FoonyGT
+- 👋 Hi, I’m @mxnk3
 - 👀 I’m interested in making games
 - 🌱 I’m currently learning coding modding
 - 💞️ I’m looking to collaborate on youtube
-- 📫 How to reach me Discord: FoonyGT...
+- 📫 How to reach me Discord: m.x.n.k.3
 - 😄 Pronouns:He/Him 
 
 
